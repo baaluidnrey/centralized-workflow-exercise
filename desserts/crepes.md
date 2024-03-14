@@ -11,7 +11,7 @@
 
 ## Les ustensiles
 
-- une grande jatte
+- une grande jatte ou un grand saladier
 - une cuillère en bois
 - un verre doseur
 - une crépière
