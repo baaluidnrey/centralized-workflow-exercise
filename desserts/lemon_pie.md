@@ -1,7 +1,7 @@
 # Lemon pie
 
 ## Ingredients
-- 1 cup white sugar
+- 1 cup white sugar (or fake sugar, but it's really a shame)
 - 2 tablespoons all-purpose flour
 - 3 tablespoons cornstarch
 - ¼ teaspoon salt
