@@ -6,7 +6,7 @@
 
 **Water:** You can replace it for chicken or vegetable broth.
 
-**Herbs:** you need guascas to make ajiaco. I find them dried in small bags online here in the United States, but in Colombia you will find them fresh. I also like to add fresh cilantro to my soup, but if you don't like the flavor just omit it.
+**Herbs:** you need [guascas](https://blog.amigofoods.com/index.php/colombian-food/guascas/) to make ajiaco. I find them dried in small bags online here in the United States, but in Colombia you will find them fresh. I also like to add fresh cilantro to my soup, but if you don't like the flavor just omit it.
 
 **Vegetables:** You need three different kinds of potatoes to make this soup (red, white and small yellow potatoes (papa criolla) an Andean potato). If you don't have papa criolla, you can replace it with small yellow potatoes. Garlic, corn and Scallions give extra flavor to this dish.
 
