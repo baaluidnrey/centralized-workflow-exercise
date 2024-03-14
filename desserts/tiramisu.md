@@ -12,7 +12,7 @@
 
 ## Instructions
 
--     Prepare the coffee. Then add 2 tablespoons of Marsala wine. Set aside and let cool.
+- Prepare the coffee. Then add 2 tablespoons of Marsala wine. Set aside and let cool.
 - Separate the egg whites from the yolks. Set aside the yolks and whip the egg whites until stiff. Once ready, set aside.
 - In a bowl, beat the egg yolks with sugar until light and smooth, 3 to 5 minutes.
 - Pour the mascarpone cheese into a bowl and work it with a spoon to make it softer. When the yolks are ready add the mascarpone cheese.
