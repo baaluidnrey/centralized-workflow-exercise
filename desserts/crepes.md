@@ -9,6 +9,14 @@
 - pincée de sel
 - du rhum, si vous en avez
 
+## Les ustensiles
+
+- une grande jatte
+- une cuillère en bois
+- un verre doseur
+- une crépière
+- un chronomètre
+
 ## Le mélange
 
 - Mettre la moitié de la farine dans une jarre puis faire un puit au milieu
