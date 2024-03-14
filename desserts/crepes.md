@@ -4,8 +4,8 @@
 
 - 300g de farine
 - 3 oeufs
-- beurre (50g)
-- lait (environ 1L mais c'est adapté à la fin)
+- 50g de beurre
+- 1L de lait (environ, on adapte à la cuisson)
 - pincée de sel
 - du rhum, si vous en avez
 
